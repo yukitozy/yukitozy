@@ -2,7 +2,6 @@
 hello..
 ![image alt](https://github.com/yukitozy/d/blob/c12a53d75cb90478e8c27844b64a144a3aa4d900/ffac2b2adea93a0ed2b1bed55126d39b.jpg)
 i think im cool .! check my sp and sign my ata
-Art comms: https://yukitkat.straw.page/comissions
 <!--
 **yukitozy/yukitozy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
